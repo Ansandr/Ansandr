@@ -1,7 +1,7 @@
-### Мой Github
+### My Github
 
-- 🌍 Заходи поиграть на [сервер](https://socialcraft.fun/)
-- 💬 Интернет связь - [Telegram](https://t.me/Ansandr5)
+- 🌍 Come play on the [server](https://socialcraft.fun/)
+- 💬 Get in touch - [Telegram](https://t.me/Ansandr5)
 
 <hr/>
 
